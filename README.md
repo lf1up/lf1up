@@ -6,6 +6,6 @@
 
 🎭 Memes `&&` 👀 YouTube `&&` 🧑‍💻 Programming
 
-![humble](https://www.dropbox.com/scl/fi/net0885guutbpoxif4uma/DALL-E-2022-10-10-11.24.36-a-fortune-telling-shiba-inu-reading-your-fate-in-a-giant-hamburger-digital-art.jpg?rlkey=6184ukqt1z58y0vse3jmul20k&raw=1)
+![humble](https://www.dropbox.com/scl/fi/6k2p6jo65jxn795lwlm0a/wonderful.png?rlkey=74uw4nx99g78zdvbaz7z863f9&raw=1)
 
 P.S. 🌝 I'm always trying to be humble with everyone.
