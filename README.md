@@ -4,7 +4,7 @@
 
 ## About Me
 
-🎨 Art `&&` 🎭 Memes `&&` 👀 YouTube `&&` 🧑‍💻 Programming
+🧑‍💻 Programming `&&` 👀 YouTube `&&` 🎭 Memes  `&&` 🎨 bit of Art 
 
 ![humble](https://www.dropbox.com/scl/fi/6k2p6jo65jxn795lwlm0a/wonderful.png?rlkey=74uw4nx99g78zdvbaz7z863f9&raw=1)
 
