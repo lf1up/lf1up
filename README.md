@@ -1,6 +1,6 @@
 # Hi, I'm Pavel :robot:
 
-👷 Senior Full Stack Engineer | 🔬 Bachelor of Software Engineering | ⭐ AI Enthusiast
+👷 Senior Full Stack Engineer | 🔬 Bachelor of Software Engineering | ⭐ AI Enthusiast | 💡 Process Optimizer
 
 ## About Me
 
