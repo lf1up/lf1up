@@ -6,6 +6,6 @@
 
 🧑‍💻 Programming `&&` 👀 YouTube `&&` 🎭 Memes  `&&` bit of Art 🎨
 
-![humble](https://www.dropbox.com/scl/fi/6k2p6jo65jxn795lwlm0a/wonderful.png?rlkey=74uw4nx99g78zdvbaz7z863f9&raw=1)
+![humble](https://www.dropbox.com/scl/fi/6k2p6jo65jxn795lwlm0a/wonderful.png?rlkey=urpaodqjbwoe9v17a5c7wpt4o&raw=1)
 
 P.S. 🌝 I'm always trying to be humble with everyone.
